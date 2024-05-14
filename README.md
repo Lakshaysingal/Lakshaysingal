@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, I'm Lakshay Singal <br><br>CSE - First Year Student At Chitkara University<br>BE CSE'27<br>
+Hello 👋, I'm Lakshay Singal <br>
 
 
 ## 🌐 Socials:
